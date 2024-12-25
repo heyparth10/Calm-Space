@@ -3,7 +3,6 @@
 Project Video --->![https://youtu.be/aBe6bzHyB8E](https://youtu.be/aBe6bzHyB8E)
 
 
-![Calm Space PPT](https://github.com/Ayansaxena24/Calm-Space/assets/84512148/2b77c279-9435-46c8-96ae-c5f3c374c4d0)
 ![Calm Space PPT (1)](https://github.com/Ayansaxena24/Calm-Space/assets/84512148/a7727bfa-2dbb-4f5b-a042-05fc0f11e153)
 ![Calm Space PPT (2)](https://github.com/Ayansaxena24/Calm-Space/assets/84512148/a616ef69-da80-4b5f-88b1-38ed1dadb4df)
 ![Calm Space PPT (3)](https://github.com/Ayansaxena24/Calm-Space/assets/84512148/9f396d9a-1274-493c-92c0-110db1ef85e0)
